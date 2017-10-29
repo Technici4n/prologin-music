@@ -14,3 +14,4 @@
 * Eagles - Hotel California
 * Boney M - Rasputin
 * Putin Putout
+* Witch Doctor
