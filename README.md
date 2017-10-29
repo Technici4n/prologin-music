@@ -9,3 +9,8 @@
 * Dschinghis Khan - Moskau 1979
 * Tom Lehrer - Lobachevsky
 * JE CODE AVEC LE Q !! - Voxmaker
+* Diggy Diggy Hole
+* Acapella Science - William Rowan Hamilton
+* Eagles - Hotel California
+* Boney M - Rasputin
+* Putin Putout
