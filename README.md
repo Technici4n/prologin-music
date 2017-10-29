@@ -7,3 +7,4 @@
 * We are number one
 * The Prince of Egypt - The Plagues
 * Dschinghis Khan - Moskau 1979
+* Tom Lehrer - Lobachevsky
