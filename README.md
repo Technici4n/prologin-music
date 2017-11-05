@@ -17,3 +17,5 @@
 * Witch Doctor
 * Ghostbusters
 * This is Halloween
+* Enae Volare
+* Ameno
