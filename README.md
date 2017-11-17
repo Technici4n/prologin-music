@@ -23,3 +23,6 @@
 * Petit Poney
 * « Le petit Lucas » - Mister Toony
 * Le Poussin Piou
+* Charles Aznavour - Les comédiens
+* Fatals Picards - La Sécurité de l'emploi
+* Hugues Aufray - Santiono
