@@ -24,5 +24,5 @@
 * « Le petit Lucas » - Mister Toony
 * Le Poussin Piou
 * Charles Aznavour - Les comédiens
-* Fatals Picards - La Sécurité de l'emploi
+* Fatals Picards - La Sécurité de l'emploi, Les dictateurs, Mon père était tellement de gauche, Et puis merde je vote à droite.
 * Hugues Aufray - Santiono
