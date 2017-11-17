@@ -27,3 +27,5 @@
 * Fatals Picards - La Sécurité de l'emploi, Les dictateurs, Mon père était tellement de gauche, Et puis merde je vote à droite.
 * Hugues Aufray - Santiono
 * Michel Sardou - Les Lacs Du Connemara
+* Le splendid - La salsa du démon
+* Kana - Plantation
