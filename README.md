@@ -34,3 +34,5 @@
 * Yu Gi Oh - Exodia theme
 * K3 - Alle Kleuren
 * Initial D - Deja Vu
+* Indochine - L'aventurier
+* Desireless - Voyage Voyage
