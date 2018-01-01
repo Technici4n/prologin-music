@@ -36,3 +36,4 @@
 * Initial D - Deja Vu
 * Indochine - L'aventurier
 * Desireless - Voyage Voyage
+* Stratovarius - Black Diamond
