@@ -37,3 +37,4 @@
 * Indochine - L'aventurier
 * Desireless - Voyage Voyage
 * Stratovarius - Black Diamond
+* France Gall - Annie aime les sucettes à l'anis
