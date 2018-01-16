@@ -38,3 +38,5 @@
 * Desireless - Voyage Voyage
 * Stratovarius - Black Diamond
 * France Gall - Annie aime les sucettes à l'anis
+* Metallica - Master of Puppets
+* Rammstein - Amerika
