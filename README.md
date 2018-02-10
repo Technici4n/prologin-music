@@ -40,3 +40,4 @@
 * France Gall - Annie aime les sucettes à l'anis
 * Metallica - Master of Puppets
 * Rammstein - Amerika
+* Francis Cabrel - Les murs de poussière
