@@ -24,7 +24,7 @@
 * « Le petit Lucas » - Mister Toony
 * Le Poussin Piou
 * Charles Aznavour - Les comédiens
-* Fatals Picards - La Sécurité de l'emploi, Les dictateurs, Mon père était tellement de gauche, Et puis merde je vote à droite, La Ferme.
+* Fatals Picards - La Sécurité de l'emploi, Les dictateurs, Mon père était tellement de gauche, Et puis merde je vote à droite, La Ferme, Les Française des Jeux.
 * Hugues Aufray - Santiono
 * Michel Sardou - Les Lacs Du Connemara
 * Le splendid - La salsa du démon
