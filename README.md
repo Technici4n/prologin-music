@@ -42,3 +42,4 @@
 * Rammstein - Amerika
 * Francis Cabrel - Les murs de poussière
 * Stupeflip - Stupeflip Vite !!!, Apocalypse 894, The Antidote
+* Nightwish - Bye Bye Beautiful
