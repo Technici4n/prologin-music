@@ -17,8 +17,7 @@
 * Witch Doctor
 * Ghostbusters
 * This is Halloween
-* Enae Volare
-* Ameno
+* Era - Enae Volare, Ameno
 * La marmelade de ma grand-mère
 * Petit Poney
 * « Le petit Lucas » - Mister Toony
@@ -37,7 +36,7 @@
 * Indochine - L'aventurier
 * Desireless - Voyage Voyage
 * Stratovarius - Black Diamond
-* France Gall - Annie aime les sucettes à l'anis
+* France Gall - Annie aime les sucettes à l'anis, Ella elle l'a
 * Metallica - Master of Puppets
 * Rammstein - Amerika
 * Francis Cabrel - Les murs de poussière
