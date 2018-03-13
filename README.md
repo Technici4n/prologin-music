@@ -38,11 +38,14 @@
 * Stratovarius - Black Diamond
 * France Gall - Annie aime les sucettes à l'anis, Ella elle l'a
 * Metallica - Master of Puppets
-* Rammstein - Amerika
+* Rammstein - Amerika, Te quiero puta!
 * Francis Cabrel - Les murs de poussière
 * Stupeflip - Stupeflip Vite !!!, Apocalypse 894, The Antidote
 * Nightwish - Bye Bye Beautiful, Storytime
 * Megadeth - Symphony of Destruction
-* L' Agent Verhaegen (Pablo Andres) - #UPCT
+* L'Agent Verhaegen (Pablo Andres) - #UPCT
 * Mozart Opera Rock - L'Assasymphonie 
 * Evanescence - Bring Me To Life
+* Seether - Careless Whisper
+* Bruno Pelletier - Le Temps des Cathédrales
+* Sopranal - Everyday J'Kette Josselyne
