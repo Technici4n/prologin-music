@@ -57,4 +57,4 @@
 * Frankie Valli and The 4 Seasons - Can't Take My Eyes off You
 * Godsmack - I Stand Alone, Bulletproof
 * Indeep - Last Night a DJ saved my Life
-* Weird Al Yankovic - White & Nerdy
+* Weird Al Yankovic - White & Nerdy, Amish Paradise
