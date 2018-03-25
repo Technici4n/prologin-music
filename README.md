@@ -59,3 +59,4 @@
 * Indeep - Last Night a DJ saved my Life
 * Weird Al Yankovic - White & Nerdy, Amish Paradise
 * System Of A Down - Forest, Toxicity
+* MC Hammer - Can't Touch This
