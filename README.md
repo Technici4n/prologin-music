@@ -60,4 +60,7 @@
 * Weird Al Yankovic - White & Nerdy, Amish Paradise
 * System Of A Down - Forest, Toxicity
 * MC Hammer - Can't Touch This
+* Disturbed - The Night
+* Muse - Uprising
 * OrelSan - Basique
+* Acide, Basique ! (parodie Orelsan)
