@@ -65,3 +65,4 @@
 * OrelSan - Basique
 * Acide, Basique ! (parodie Orelsan)
 * KORPIKLAANI - Vodka (OFFICIAL VIDEO)
+* Soviet Suprem - Vladimir [Clip officiel]
