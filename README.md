@@ -67,3 +67,4 @@
 * KORPIKLAANI - Vodka (OFFICIAL VIDEO)
 * Soviet Suprem - Vladimir [Clip officiel]
 * Rick and Morty Soundtrack - Evil Morty's Theme (Quality Extended) [For the Damaged Coda]
+* The Binding of Isaac - Cathedral Theme
