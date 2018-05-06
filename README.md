@@ -70,3 +70,4 @@
 * The Binding of Isaac - Cathedral Theme
 * Sabaton - A Lifetime Of War, The Lion From The North, Night Witches, The Last Stand
 * Dumb ways to die
+* Globus - Europa
