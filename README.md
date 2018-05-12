@@ -71,3 +71,6 @@
 * Sabaton - A Lifetime Of War, The Lion From The North, Night Witches, The Last Stand
 * Dumb ways to die
 * Globus - Europa
+* Dennis Ritchie - Write in C
+* O Fortuna Misheard Lyrics
+* Le grand jojo - Jules César
