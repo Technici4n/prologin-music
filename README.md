@@ -74,3 +74,4 @@
 * Dennis Ritchie - Write in C
 * O Fortuna Misheard Lyrics
 * Le grand jojo - Jules César
+* Slipknot - Duality
