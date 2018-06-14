@@ -76,3 +76,4 @@
 * Le grand jojo - Jules César
 * Slipknot - Duality
 * Toto - Africa
+* Toto - Africa (metal cover by Leo Moracchioli)
