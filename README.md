@@ -13,7 +13,7 @@
 * Acapella Science - William Rowan Hamilton
 * Eagles - Hotel California
 * Boney M - Rasputin
-* Putin Putout
+* Putin Putout, Ruf mich Angela
 * Witch Doctor
 * Ghostbusters
 * This is Halloween
@@ -77,3 +77,4 @@
 * Slipknot - Duality
 * Toto - Africa
 * Toto - Africa (metal cover by Leo Moracchioli)
+* Tom Waes - Dva Vodka
