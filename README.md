@@ -79,3 +79,6 @@
 * Toto - Africa (metal cover by Leo Moracchioli)
 * Tom Waes - Dva Vodka
 * Requiem for a Dream
+* Powerwolf - Fire and Forget
+* Bella ciao
+* Jacques Brel - Quand on n'a que l'amour
