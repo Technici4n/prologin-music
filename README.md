@@ -58,7 +58,7 @@
 * Godsmack - I Stand Alone, Bulletproof
 * Indeep - Last Night a DJ saved my Life
 * Weird Al Yankovic - White & Nerdy, Amish Paradise
-* System Of A Down - Forest, Toxicity, BYOB
+* System Of A Down - Forest, Toxicity, BYOB, Chop Suey!
 * MC Hammer - Can't Touch This
 * Disturbed - The Night
 * Muse - Uprising
@@ -87,3 +87,4 @@
 * Indian Alphabet Song (Original)
 * The Coconut Song
 * Patrick Sebastien - Et quand il pète il troue son slip
+* Europe - The final countdown
