@@ -82,3 +82,6 @@
 * Powerwolf - Fire and Forget
 * Bella ciao
 * Jacques Brel - Quand on n'a que l'amour
+* Bo le lavabo
+* Bella ciao maître gims kids cover
+* 
