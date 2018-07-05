@@ -86,3 +86,4 @@
 * Bella ciao maître gims kids cover
 * Indian Alphabet Song (Original)
 * The Coconut Song
+* Patrick Sebastien - Et quand il pète il troue son slip
