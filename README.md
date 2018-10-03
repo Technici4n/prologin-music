@@ -88,3 +88,4 @@
 * The Coconut Song
 * Patrick Sebastien - Et quand il pète il troue son slip
 * Europe - The final countdown
+* Jean-François Remacle - Décembre
