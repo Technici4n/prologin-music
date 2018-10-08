@@ -89,3 +89,4 @@
 * Patrick Sebastien - Et quand il pète il troue son slip
 * Europe - The final countdown
 * Jean-François Remacle - Décembre
+* Google Translate Sings: "Be Prepared" from The Lion King (ft. Jonathan Young)
